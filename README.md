@@ -5,6 +5,7 @@
 📧 Email: [ctalukdar@gmail.com](mailto:ctalukdar@gmail.com)
 📞 Phone: 123456789
 🏢 Affiliation: Assistant Professor, ADTU
+Web-  [ctalukdar19.github.io](https://ctalukdar19.github.io/cv/)
 
 ---
 
